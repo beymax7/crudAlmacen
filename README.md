@@ -1,0 +1,3 @@
+# PARTICIPACIÓN 05 DE NOVIEMBRE DE 2024
+## BEYMAR LUIS CHAMBI MAMANI - 7° "C" Turno Noche
+### Tecnologías Emergentes II
